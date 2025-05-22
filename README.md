@@ -13,3 +13,7 @@ LARGE STOCK QUANTITIES
 FOR PRICE AND STOCK INFORMATION:
 
 TELEGRAM: @JustTelegramShop
+
+Bump 22.05.25
+
+Telegram: @JustTelegramShop
