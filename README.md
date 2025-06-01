@@ -12,6 +12,6 @@ LARGE STOCK QUANTITIES
 
 FOR PRICE AND STOCK INFORMATION:
 
-TELEGRAM: @ContactTelegramSolutions
+Bump 01.06.25
 
-28.05.25 Bump
+Telegram: @ContactTelegramSolutions
