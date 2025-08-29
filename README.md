@@ -16,7 +16,7 @@ Bump 28.08.25
 
 Telegram: @ContactTelegramSolutions
 
-
+People ask me how bans work — I just send them this: https://telegramgrowthstudio.com/blog/step-by-step-telegram-channel-bans.html
 
 Scaling Telegram marketing requires more than one account. Here’s where you can learn about multi-account setups and safe providers:
 👉 https://telegramgrowthstudio.com/telegram-accounts.html
